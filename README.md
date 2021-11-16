@@ -122,6 +122,7 @@ le html du 2eme composent son parent
 j'ai pas eu assez de temps désoler monsieurs
 
 Besoin de plus de cours et d'explication, j'aime bien la filière mais j'ai trop de mal c'est ça qui me bloque.
-Mais j'aimerais bien devenir fort en developpement, j'espère que je vais y arriver.
+Mais j'aimerais bien devenir fort en developpement, j'espère que je vais y arriver au pire des cas je changerais de filiè.
+Mes salutation distinguer.
 
 Bonne correction 
